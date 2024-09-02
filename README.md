@@ -1,0 +1,1 @@
+# loyalty-badge-images
